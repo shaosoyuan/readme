@@ -1,2 +1,4 @@
 Ciallo～(∠・ω< )⌒☆
-Ciallo～(∠・ω< )⌒☆Ciallo～(∠・ω< )⌒☆Ciallo～(∠・ω< )⌒☆ciallo
+Ciallo～(∠・ω< )⌒☆
+Ciallo～(∠・ω< )⌒☆Ciallo～(∠・ω< )⌒☆Ciallo～(∠・ω< )⌒☆
+Ciallo～(∠・ω< )⌒☆
